@@ -213,4 +213,4 @@ Cradle of Rome 2 is the full free version with all features and updates included
 Download Cradle of Rome 2 today and embark on your journey to become a legendary Emperor! Enjoy solving puzzles and exploring the rich history of Ancient Rome.
 
 ---
-**Last updated:** 2026-10-01 20:08:32 UTC
+**Last updated:** 2026-10-02 00:32:49 UTC
